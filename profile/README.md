@@ -1,5 +1,4 @@
 # Minecraft 1.21.44.01 APK Latest Version Update - Download for Android 2024
-
 # Download: <a href=https://badatiapk.com/minecraft/>Minecraft 1.21.44.01 APK</a>
 
 **Minecraft 1.21.44.01 APK: What’s New in the Latest Version?**
